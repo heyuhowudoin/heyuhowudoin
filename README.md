@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @heyuhowudoin
+- 👋 Hi, I’m Abram
 - 👀 I’m interested in Stayin inside al day and dyoing
 - 🌱 I’m currently learning subjects in sxhool
 - 💞️ I’m looking to collaborate on ... i am?
